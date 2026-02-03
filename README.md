@@ -2,7 +2,7 @@
 
 
 **Author:** John Liakakos
-**Contact:** [email@example.com] | https://www.linkedin.com/in/john-liakakos
+**Contact:** [jliakakos34@icloud.com] | https://www.linkedin.com/in/john-liakakos
 
 
 ## Objective
